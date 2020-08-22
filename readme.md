@@ -1,1 +1,1 @@
-**Template Pekalongan Study from Dicoding
+*Template Pekalongan Study from Dicoding
